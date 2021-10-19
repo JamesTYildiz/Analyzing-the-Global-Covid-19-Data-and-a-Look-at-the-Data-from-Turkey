@@ -1,0 +1,1 @@
+# Analyzing-the-Global-Covid-19-Data-and-a-look-at-the-Data-from-Turkey
